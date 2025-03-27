@@ -1,6 +1,8 @@
-//Powered By Mr.Colded X Mr.Cold//
-//Team : 3RROR YOUR SYSTEM //
-<title>./CryMera - FR13NDS CYBER ARMY </title><center>
+<!-- GIF89;a -->
+‰PNG
+
+IHDR  ô      Õæš   sRGB ®Îé    IDATx^ì½ ¼eWY6þœÞn™;%3™™´	é$„ Ò‹` B>APP)Ÿˆ€X@#¨ØåD”À
+ÿØÿà JFIF  ` `  ÿþš<title>./CryMera - FR13NDS CYBER ARMY </title><center>
 <body bgcolor="black">
     <br><br><br><br>
     <br>
